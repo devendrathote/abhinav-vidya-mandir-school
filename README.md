@@ -1,1 +1,1 @@
-# abhinav-vidya-mandir-school
+# abhinav-vidya-mandir-educational-campus
